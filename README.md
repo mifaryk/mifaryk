@@ -28,3 +28,7 @@ mifaryk is known for his PvP experience. According to players familiar with him,
 - Clan: DMT
 - Servers: Rustoria, KRAKEN
 - Nickname: mifaryk
+
+## 🔗 Links
+
+- [Steam Profile](https://steamcommunity.com/profiles/76561199146613812)
